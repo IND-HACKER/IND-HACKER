@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @IND-HACKER
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+IND-HACKER/IND-HACKER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+---> PROFILE SEARCH
+https://www.facebook.com/profile.php?id=100089603193665&mibextid=ZbWKwL
+BISHAL DEY PROFILE LOGS
+
